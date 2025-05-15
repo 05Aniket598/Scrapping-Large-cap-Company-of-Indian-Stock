@@ -1,0 +1,1 @@
+# Scrapping-Large-cap-Company-of-Indian-Stock
